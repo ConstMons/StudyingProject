@@ -1,0 +1,2 @@
+# StudyingProject
+Learn harder lol
